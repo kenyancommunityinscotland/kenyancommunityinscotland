@@ -1,4 +1,4 @@
-# Kenyan Community in Scotland 🇰🇪 Kenyan Flag Scottish Flag UK Flag
+# 🇰🇪 Kenyan Community in Scotland 🇬🇧 
 
 Welcome to the official GitHub page of the **Kenyan Community in Scotland**!
 
