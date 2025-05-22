@@ -58,4 +58,4 @@ Have a question or suggestion? Reach us via:
 - 💬 Twitter: [@KenyanCommScot](https://twitter.com/KenyanCommScot)  
 - 🌐 Website: [kenyancommunityinscotland.uk](https://kenyancommunityinscotland.uk)
 
-Together, let's grow stronger and stay connected. 🇰🇪❤️🏴
+Together, let's grow stronger and stay connected. 🇰🇪❤️🏴󠁧󠁢󠁳󠁣󠁴󠁿
