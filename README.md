@@ -54,7 +54,7 @@ This project is open source and available under the [MIT License](LICENSE).
 Have a question or suggestion? Reach us via:
 
 - 📧 Email: info@kenyancommunityinscotland.uk  
-- 💬 Twitter: [@KenyanScotland](https://twitter.com/KenyanScotland)  
+- 💬 Twitter: [@KenyanCommScot](https://twitter.com/KenyanCommScot)  
 - 🌐 Website: [kenyancommunityinscotland.uk](https://kenyancommunityinscotland.uk)
 
 Together, let's grow stronger and stay connected. 🇰🇪❤️🏴
