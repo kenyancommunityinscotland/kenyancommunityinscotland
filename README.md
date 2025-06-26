@@ -1,7 +1,7 @@
-# 🇰🇪 Kenyan Community in Scotland 🏴󠁧󠁢󠁳󠁣󠁴󠁿
+# Kenyan Community in Scotland
 
 
-Welcome to the official GitHub page of the **Kenyan Community in Scotland**!
+Welcome to the official GitHub page of the **Kenyan Community in Scotland (KCS)**!
 
 We are a vibrant and supportive community of Kenyans living, working, and studying in Scotland. Our goal is to promote unity, preserve our rich cultural heritage, support newcomers, and foster opportunities for personal and professional growth.
 
